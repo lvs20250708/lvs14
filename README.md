@@ -10,4 +10,4 @@
 
 平台提供丰富的精选视频内容，从久久久久精品系列到国产精品大片应有尽有。每个视频都经过精心筛选，支持高清播放，确保您享受流畅的观影体验。资源更新迅速，随时随地都能观看最新内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/lvs20250708/lvs14 ）</span>
